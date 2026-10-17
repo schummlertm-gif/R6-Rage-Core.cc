@@ -1,6 +1,5 @@
 ==================================================
                    CORE.CC 
-==
 Rage & Legit Cheat for Rainbow Six Siege (Operation Throwback)! 
 
 The Best for Fun or HvH with ur Friends !
